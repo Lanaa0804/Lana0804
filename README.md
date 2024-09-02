@@ -11,5 +11,6 @@ Meu nome é Lana
 
 0000107932284xsp.al.educacao.sp.gov.br@gmail.com
 
+@aluratartstudante@gmail.com
 
 ![descrição do GIF](link GIF do Tenor)
